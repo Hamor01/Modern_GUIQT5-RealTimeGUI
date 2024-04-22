@@ -41,6 +41,8 @@ Sorry for the quaity of the video, don't forget that the gui window frame size i
 
 https://user-images.githubusercontent.com/77603228/174900490-152f011f-f5bb-4e6f-b4d0-0d30cea6be77.mp4
 
+# You can get me directly via email : haronhumbira@gmail.com OR whatsapp +254704511445 for great works like this.
+
 
 
 
